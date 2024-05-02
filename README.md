@@ -1,2 +1,2 @@
 # fullread
-Coming soon...
+Available after accepting
